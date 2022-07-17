@@ -1,1 +1,1 @@
-# Thouts
+# Thoughts
